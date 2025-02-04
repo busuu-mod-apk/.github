@@ -3,7 +3,7 @@ Because learning a foreign language is never easy. Most people give up midway be
 
 # [Download Link 👉- Busuu Mod APK](https://alphasofts.college/dl/?Busuu-pro-unlocked)
 
-## Introduce about Busuu
+## Introduce about busuu - учи английский, испанский и другие языки
 An outstanding foundational language learning app with study plans and reminders!
 
 ## Difficulties of the majority of foreign language learners
